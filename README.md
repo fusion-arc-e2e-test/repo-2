@@ -7,3 +7,4 @@ She was late becuase she missed the buss.
 
 I can't beleive how brite the sky is today.
 He realy enjoys reading histroy books.
+We should defnitely try that new resturant downtown.
